@@ -1,0 +1,1 @@
+start MNS BGM Info\nEastern Dreams,Ephemeral Dreams\nÈğúQP\nsm9779213
